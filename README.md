@@ -1,2 +1,2 @@
 # Lambton
-assignments
+just posting college assignments for fun!
